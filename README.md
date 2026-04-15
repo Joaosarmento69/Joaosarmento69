@@ -37,4 +37,5 @@ Desenvolvedor focado em entender como os sistemas funcionam por baixo dos panos.
 
 ---
 
-📫 **Contact:** [LinkedIn](coloque-o-link-do-seu-linkedin-aqui) | [Email](mailto:coloque-seu-email-aqui)
+📫 **Contact:** [LinkedIn](https://www.linkedin.com/in/jo%C3%A3o-antonio-pereira-sarmento-1b2a29403/) | [Email](joaoantoniopereirasarmento4@gmail.com)
+
